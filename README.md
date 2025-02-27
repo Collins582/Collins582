@@ -10,4 +10,4 @@ My name is Collins Kipkorir and I am a computer programmer
 - 👯 Technologies ... computer 
 - 🤔 Languages ...all
 - 💬 Current projects or coursework ... computer programming 
-- 📫 How to reach me: ...0112574892
+- 📫 How to reach me: ...0112574892 or ckigen56@gmail.com
