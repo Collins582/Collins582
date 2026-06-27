@@ -1,4 +1,6 @@
 ## Hi there 👋
+Check out my other socials:https://guns.lol/Snilloc
+
 
 <!--
 **Collins582/Collins582** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
